@@ -1,5 +1,3 @@
-Chapter 6: Implementation
-=========================
 
 Effective implementation of goal-setting strategies is critical for achieving personal and organizational success in the workplace. In this chapter, we will explore how to implement strategies for setting and achieving workplace goals, overcome barriers to effective implementation, and measure the effectiveness of goal-setting strategies.
 

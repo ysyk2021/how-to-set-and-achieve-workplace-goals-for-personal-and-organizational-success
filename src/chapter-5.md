@@ -1,5 +1,3 @@
-Chapter 4: Prioritizing Goals
-=============================
 
 Prioritizing goals is a crucial step in effective goal setting and achievement. In this chapter, we will explore how to identify high-priority goals, balance short-term and long-term goals, and create an action plan for achieving goals.
 

@@ -1,5 +1,3 @@
-Setting Specific, Measurable, Achievable, Relevant, and Time-Bound Goals
-====================================================================================================================
 
 The SMART goal framework provides a structured approach to setting and achieving workplace goals. In this chapter, we will explore how to set specific, measurable, achievable, relevant, and time-bound (SMART) goals.
 

@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Challenges and Obstacles
-==============================================
 
 Overcoming challenges and obstacles is a critical component of effective goal setting and achievement in the workplace. In this chapter, we will explore how to anticipate obstacles and challenges, develop strategies for overcoming them, and stay motivated and focused.
 

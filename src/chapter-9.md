@@ -1,5 +1,3 @@
-Chapter 8: Future Directions
-============================
 
 As the workplace continues to evolve and change, so too will the strategies and techniques used for setting and achieving workplace goals. In this chapter, we will explore some of the future directions for goal setting in the workplace and how they may impact personal and organizational success.
 

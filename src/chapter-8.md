@@ -1,5 +1,3 @@
-Chapter 7: Leadership Support
-=============================
 
 Leaders play a critical role in supporting effective goal setting and achievement in the workplace. In this chapter, we will explore the importance of leadership support for goal setting and achievement, modeling effective goal-setting behaviors and attitudes, and addressing challenges and setbacks.
 

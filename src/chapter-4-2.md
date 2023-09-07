@@ -1,5 +1,3 @@
-Applying the SMART Goal Framework to Workplace Goals
-================================================================================================
 
 The SMART goal framework provides a structured approach to setting and achieving workplace goals. In this chapter, we will explore how to apply the SMART goal framework to workplace goals.
 

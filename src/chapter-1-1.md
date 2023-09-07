@@ -1,5 +1,3 @@
-Purpose of the Book
-=================================
 
 The purpose of this book is to provide practical guidance and actionable insights into effective goal setting in the workplace. Whether you are an individual contributor or a leader responsible for managing teams, the strategies and techniques outlined in this book can help you achieve your personal and organizational goals and drive business success.
 

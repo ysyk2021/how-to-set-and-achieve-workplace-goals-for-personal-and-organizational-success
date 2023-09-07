@@ -1,5 +1,3 @@
-Chapter 3: Creating a SMART Goal Framework
-==========================================
 
 The SMART goal framework is an effective approach to setting and achieving workplace goals. In this chapter, we will explore how to understand and apply the SMART goal framework to workplace goals, including setting specific, measurable, achievable, relevant, and time-bound goals.
 

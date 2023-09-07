@@ -1,5 +1,3 @@
-Chapter 1: Defining Goal Setting in the Workplace
-=================================================
 
 Setting goals is an integral part of achieving success in the workplace. By defining clear and actionable objectives, individuals and teams can stay focused, motivated, and achieve personal and organizational success. In this chapter, we will explore what goal setting is and the benefits it brings to the workplace.
 
