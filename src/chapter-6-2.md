@@ -1,5 +1,4 @@
-Chapter 9: Developing Strategies for Overcoming Obstacles
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting and achieving workplace goals for personal and organizational success is a dynamic process that can encounter various obstacles along the way. In this chapter, we will explore effective strategies for identifying and overcoming these challenges.
 

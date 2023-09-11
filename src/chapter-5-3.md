@@ -1,5 +1,4 @@
-Chapter 7: Creating an Action Plan for Achieving Goals
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Having clear, well-defined goals is crucial, but without a concrete action plan, those goals can remain elusive. This chapter will guide you through crafting an effective action plan, ensuring that your goals transition from ideas to reality.
 

@@ -1,5 +1,4 @@
-Chapter 1: What is Goal Setting?
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of personal and organizational success, goal setting is a fundamental process that serves as a roadmap to guide efforts, measure progress, and ultimately achieve desired outcomes. This chapter explores the concept of goal setting, its importance, and how it lays the foundation for success in the workplace.
 

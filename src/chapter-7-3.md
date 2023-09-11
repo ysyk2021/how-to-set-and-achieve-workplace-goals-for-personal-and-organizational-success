@@ -1,5 +1,4 @@
-Chapter 12: Measuring the Effectiveness of Goal-Setting Strategies
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting workplace goals is a significant step towards personal and organizational success, but it's equally important to assess how well your goal-setting strategies are working. In this chapter, we will explore methods for measuring the effectiveness of your goal-setting strategies and making necessary adjustments to ensure continuous improvement.
 

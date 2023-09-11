@@ -1,5 +1,4 @@
-Chapter 13: Addressing Challenges and Setbacks
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting and pursuing workplace goals is a journey filled with highs and lows. In this chapter, we will explore strategies for addressing challenges and setbacks on the path to personal and organizational success through goal setting.
 

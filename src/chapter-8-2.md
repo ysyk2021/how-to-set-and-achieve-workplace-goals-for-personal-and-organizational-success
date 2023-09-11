@@ -1,5 +1,4 @@
-Chapter 12: Modeling Effective Goal-Setting Behaviors and Attitudes
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey towards personal and organizational success through goal setting, the behaviors and attitudes of individuals play a pivotal role. In this chapter, we will explore how modeling effective goal-setting behaviors and attitudes can inspire and guide individuals and teams towards achieving their workplace goals.
 

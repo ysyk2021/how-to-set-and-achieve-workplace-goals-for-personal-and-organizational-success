@@ -1,5 +1,4 @@
-Chapter 5: Examples of Successful Goal Setting Initiatives in Practice
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore real-world examples of successful goal setting initiatives in various industries and organizations. These examples illustrate how effective goal setting can drive personal and organizational success.
 

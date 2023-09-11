@@ -1,5 +1,4 @@
-Chapter 6: Understanding the Impact of Goal Setting on Business Success
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Goal setting is a fundamental practice that has a profound impact on the success of businesses and organizations. In this chapter, we will explore how setting and achieving workplace goals can influence various aspects of business success.
 

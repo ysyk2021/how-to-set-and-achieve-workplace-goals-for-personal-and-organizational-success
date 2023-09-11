@@ -1,5 +1,4 @@
-Chapter 7: Identifying High-Priority Goals
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting the right goals is a crucial step in achieving workplace success, both personally and for the organization. In this chapter, we will explore techniques and strategies for identifying high-priority goals that align with your vision and contribute to overall success.
 

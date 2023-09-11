@@ -1,5 +1,4 @@
-Chapter 9: Innovations in Setting and Achieving Workplace Goals
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The landscape of goal setting in the workplace is continuously evolving, with new approaches and innovations shaping how individuals and organizations set and achieve their objectives. In this chapter, we will explore some of the cutting-edge innovations and techniques that are revolutionizing the way we approach workplace goals.
 

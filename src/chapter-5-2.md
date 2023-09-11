@@ -1,5 +1,4 @@
-Chapter 9: Balancing Short-Term and Long-Term Goals
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Balancing short-term and long-term goals is a key aspect of achieving both personal and organizational success. In this chapter, we will explore the importance of striking this balance and provide strategies for effectively managing both types of goals.
 

@@ -1,5 +1,4 @@
-Chapter 10: Addressing New Challenges in Goal Setting and Achievement
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As workplaces and industries evolve, new challenges emerge in the realm of goal setting and achievement. In this chapter, we will explore these contemporary challenges and provide insights on how to address them effectively.
 

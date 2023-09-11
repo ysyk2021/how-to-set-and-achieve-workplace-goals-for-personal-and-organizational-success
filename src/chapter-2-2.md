@@ -1,5 +1,4 @@
-Chapter 3: The Benefits of Goal Setting in the Workplace
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Goal setting is a powerful tool that can transform the workplace by fostering personal and organizational success. In this chapter, we will explore the numerous advantages of goal setting and how it contributes to a thriving, goal-oriented environment.
 

@@ -1,5 +1,4 @@
-Chapter 4: The Costs of Not Setting Clear Goals
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of personal and organizational success, the failure to establish clear and well-defined goals can come at a significant cost. This chapter will delve into the various consequences and drawbacks of neglecting to set clear goals in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 11: Overcoming Barriers to Effective Implementation
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting workplace goals is an important first step, but achieving them often presents various challenges. In this chapter, we will explore common barriers to effective goal implementation and provide strategies to overcome them, ensuring success for both individuals and organizations.
 

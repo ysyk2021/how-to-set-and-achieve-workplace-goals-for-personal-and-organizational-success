@@ -1,5 +1,4 @@
-Chapter 11: Looking Ahead to the Future of a Workforce that Prioritizes Goal Setting and Achievement
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 As we progress into an era of rapid change and innovation, the role of goal setting and achievement in the workforce is poised to evolve significantly. In this chapter, we will explore the future trends and considerations for a workforce that places even greater emphasis on setting and achieving workplace goals.
 

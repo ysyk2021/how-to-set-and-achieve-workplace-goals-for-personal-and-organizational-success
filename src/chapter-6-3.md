@@ -1,5 +1,4 @@
-Chapter 10: Staying Motivated and Focused
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting and achieving workplace goals for personal and organizational success requires more than just creating a plan; it also demands unwavering motivation and laser-like focus. This chapter explores essential strategies to help individuals and teams stay motivated and maintain their focus on the path to goal attainment.
 
